@@ -10,7 +10,7 @@ Follow me on tiktok which in the How to reach me or https://tiktok.com/@weaus
 
 Subscribe to my youtube will be making videos on discord bots or something else: https://www.youtube.com/channel/UCchpUNvFjijMuVdZM3cG4HA
 
-Twitter is: https://twitter.com/weaus_  dms are open is you need a bot or something
+Twitter is: https://twitter.com/_weaus dms are open is you need a bot or something
 
 
 From your best,
